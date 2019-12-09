@@ -1,6 +1,8 @@
-![Riace](riace.png)
+![Riace](riace.jpg)
 
-### intro
+# Analogistics
+
+### foreword
 Analogistics is a book of authentic reflections on some of the ways in which our society fails to protect and support those who need it the most, reported from the bottom of the pyramid.
 
 ### support
