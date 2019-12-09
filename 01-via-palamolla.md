@@ -1,0 +1,10 @@
+### 01 - Via Palamolla
+I'm writing these words in a notebook while sitting in an uncomfortable pose on top of a cold marble bench surrounded by swaying palm trees on the beach walk in Reggio Calabria. Trying my best to look like I belong here to not draw the attention of the Police car that passes by with regular intervals, as well as timing my toilet breaks down by the water to not let them find my bags unattended.
+
+It's three hours after midnight and the moon is still high in the sky, but I can feel the wind getting warmer and sense increasing activity from the awakening city behind me. I'm listening to the calm waves hitting the rocky beach in front of me, savouring the familiar scent of ocean and watching the glimmering lights on the opposite side of the bay; while finishing a bag of bread sticks and drinking cold water with chia- and sesame seeds from my stainless steel cup, and occasionaly rolling a cigarette more to break the monotony than because of nicotine cravings.
+
+I am freezing like crazy despite being wrapped in all my warmest clothes and my crappy back hurts from sitting too much and carrying two heavy back packs containing everything I own for several days in a row. But it still feels like heaven compared to just a few hours ago.
+
+I arrived around midnight on an 8h direct bus trip from Rome, starving and still freezing from spending the entire night before in a bus tunnel outside Rome's central bus station to escape the pouring rain. I used the few Euros remaining after buying the bus ticket to get a Cappuccino, a Croissant, a tiny bottle of water to drink and some warmth and comfort for breakfast while waiting for the bus.
+
+With the bus tunnel still fresh in my mind, I sacrificed what little dignity I still had to do a public announcement of my situation and immediate needs on the bus. But they just kept sitting there in their classy Italian clothes eating their delicious Italian travel food as if I didn't exist. The complete indifference and lack of empathy felt like being hit really hard in the solar plexus. And not primarily for my sake, but for everyone out there having similar experiences every single day.
