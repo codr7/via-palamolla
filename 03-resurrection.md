@@ -1,10 +1,1 @@
 ### 3. Resurrection
-By some miracle, my phone managed to pull me out of my coma just before the bus arrived. As I tried to stand up; I quickly realized that something was very wrong with my muscles and joints, and had to wobble back and forth along the wall for quite some time before I my legs agreed to carry my weight on their own.
-
-When the bus arrived, I was the only passenger waiting. The driver didn't speak any English, but once I said Riace, his face lit up in relief and he leapt out of his seat to help load my bags. He didn't even mention tickets or money, which was fine by me; so I sat down and tried to relax. The ride went up into the mountains, through countless small villages; while the bus kept filling up with older Italian ladies clutching their handbags and sharing the latest gossip.
-
-Somewhere along the way I fell asleep with my head resting against the window, and was woken up by the man responsible for selling tickets. When he realized I didn't have any money, he started swearing like crazy in Italian while bouncing up and down. I fully expected to be thrown off with my bags in the pouring rain any second; but once he had vented his frustration and the ladies managed to calm him down, he was back to his normal cheery self again.
-
-At the next stop, the lady next to me discretely reached down into her handbag and handed over a 5 Euro note. I gently touched her arm and wispered thank you, and then she stood up and got off the bus.
-
-When we arrived in Riace Marina at a café down by the ocean on the opposite side of the mountains, the bus driver leapt out and helped me unload my bags as if the ticket drama never happened. The girl working in the café told me that my final goal was still 7km uphill, so I used some of the money to refuel before putting on my bags and beginning the slow, painful walk up into the mountains.
