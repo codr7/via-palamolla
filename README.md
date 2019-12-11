@@ -1,4 +1,5 @@
 # Analogistics
+#### by Ⓐ G. Wild
 
 ![Riace](riace.jpg)
 
