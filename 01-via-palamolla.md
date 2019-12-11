@@ -23,9 +23,9 @@ Despite all of that, the well- dressed and groomed young man sitting behind the 
 
 As a last resort, I asked if he would consider calling the Police and check, since I don't speak Italian very well and my phone was running out of money. They promised to call back once they managed to locate someone who knew anything about anything.
 
-While we were waiting, I went out for a smoke; and just as I was about to return the door opened from the inside and presented a hand holding an Espresso in a plastic cup, followed by my friend beaming with a new sense of purpose.
+While we were waiting, I went out for a smoke; and just as I was about to return the door opened from the inside and presented a hand holding an espresso in a plastic cup, followed by my friend beaming with a new sense of purpose.
 
-As I stepped inside sipping on my Espresso, he almost started jumping up and down with excitement while pointing at the gifts he had carefully arranged for me on the reception counter. A bag of bread sticks, a litre bottle of water and two big apples. Once he got to the end, and despite my obvious gratefulness for his inspired act of kindness; he still seemed to feel something was missing and pulled out a 5 Euro note from his pocket, and then asked to refill my tobacco from his personal pouch.
+As I stepped inside sipping on my espresso, he almost started jumping up and down with excitement while pointing at the gifts he had carefully arranged for me on the reception counter. A bag of bread sticks, a litre bottle of water and two big apples. Once he got to the end, and despite my obvious gratefulness for his inspired act of kindness; he still seemed to feel something was missing and pulled out a 5 Euro note from his pocket, and then asked to refill my tobacco from his personal pouch.
 
 It was such a pleasure to watch him go through his transformation that I didn't want it to stop for his sake. He said the Police told him the shelter was located right in front of the train station. So I packed my gifts, looked into his eyes that almost had tears welling up at this point; and said thank you, you are a good man, don't forget. He then grabbed my hand and pulled me in for a warm hug.
 
