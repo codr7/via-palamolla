@@ -1,9 +1,9 @@
 ### 2. Crucifixion
-I spent most of the following day dragging my bags back and forth across town looking for a Western Union office to make it possible for a friend in Germany to transfer my accumulated donations from the Gofundme campaign I created before leaving the country.
+I spent most of the following day dragging my bags back and forth across town, looking for a Western Union office to make it possible for a friend in Germany to transfer my accumulated donations from the Gofundme campaign I created before leaving the country.
 
-Once I located an office, I was informed that withdrawing money using a temporary passport is illegal to prevent money laundering. It seems to me that if that was the real goal, the law would include a minimum amount for it to apply. The practical consequence is that once you're on a temporary passport without access to a bank account, you're on your own.
+Once I located an office, I was informed that withdrawing money using a temporary passport is illegal to prevent money laundering. It seems to me that if that was the real goal, the law would include a minimum amount to apply. The practical consequence is that once you're on a temporary passport without access to a bank account, you're on your own.
 
-Somewhat frustrated I sat down in a park to reload in the sun and consider my options. As I was sitting there pulling off layers of warm clothes, a homeless immigrant approached me and asked if I could spare something warm to wear; as I had plenty and he was freezing. My first reflex was to put up my shields, since I was still very much operating in fight- or flight mode. But then I remembered my friend from the hotel; and pulled out my second warmest pullover and said here, this will keep you warm. For the entire time I sat there; my new friend was sitting next to me beaming like the sun and trying to keep a conversation going using the few English words he knew.
+Somewhat frustrated I sat down in a park to reload in the sun and consider my options. As I was sitting there pulling off layers of warm clothes, a homeless immigrant approached me and asked if I could spare something warm to wear; as I had plenty and he was freezing. My first reflex was to put up my shields, since I was still very much operating in fight- or flight mode. But then I remembered my friend from the hotel; and pulled out a cozy pullover filled with goose down and said here, this will keep you warm. For the entire time I sat there; my new friend was sitting next to me beaming like the sun and trying to keep a conversation going using the few English words he knew.
 
 I used my 5 Euros to get a delicious slice of pizza and an espresso to prepare for another night outside. My plan was to make my way up to the hotel around the same time as the previous night, hoping that my friend was working the same shift and could help me figure out a way to get to my final destination, Riace Superiore.
 
@@ -13,9 +13,9 @@ Once I arrived at the hotel, my friend was nowhere to be found. In his place was
 
 I stumbled out of the hotel and started walking in the direction of the train station, where the bus would depart at 5:30am the next day; with the goal of finding a safe space where I could snooze for a few hours before I collapsed. The polite police men in front of the station listened to my story and answered something along the lines of; shit man, total bummer, you can sleep inside the train station; and promptly resumed watching YouTube on their phones.
 
-After failing to make myself comfortable and warm enough out on an abandoned platform, I finally gave up and collapsed in a pile on top of my bags in the least pee smelling corner I could find right inside the wide open main entrance door. Before falling asleep, the last thing I promised myself was to end this nightmare the following day no matter what.
+After failing to make myself comfortable and warm enough out on an abandoned platform; I finally gave up and collapsed in a pile on top of my bags in the least urine smelling corner I could find, right inside the wide open main entrance door. Before falling asleep, the last thing I promised myself was to end this nightmare the following day no matter what.
 
-My phone managed to pull me out of coma just before the bus arrived. As I tried to stand up; I quickly realized that something was very wrong with my muscles and joints, and had to wobble back and forth along the wall for quite some time before my legs began cooperating.
+My phone managed to pull me out of coma just before the bus arrived. As I tried to stand up; I quickly realized that something was very wrong with my muscles and joints, and had to wobble back and forth along the wall for quite some time before my body started to cooperate.
 
 When the bus arrived, I was the only passenger waiting. The driver didn't speak any English at all; but once I said Riace, his face lit up in relief and he leapt out of his seat to help load my bags. He didn't even mention tickets or money, which was fine by me. The ride went through pouring rain from a dark gray sky up into the mountains, stopping in countless small villages along the way; while the bus kept filling up with Italian ladies carrying handbags, laughing and sharing the latest gossip.
 
@@ -23,4 +23,6 @@ At some point I fell asleep with my head resting against the window, and was wok
 
 At the next stop, the lady next to me discretely reached down into her handbag and handed over a 5 Euro note. I gently touched her arm and wispered thank you, and then she stood up and got off the bus.
 
-When we arrived in Riace Marina at a café down by the ocean on the opposite side of the mountains, the bus driver leapt out and helped me unload my bags as if the ticket drama never happened. The girl working in the café told me that my final goal, Riace Superiore; was located 7km up in the mountains, so I used some of the money to refuel before grabbing my bags and starting the slow, painful walk uphill.
+When we arrived in Riace Marina at a café down by the ocean on the opposite side of the mountains, the bus driver leapt out and helped me unload my bags as if the ticket drama never happened.
+
+The girl working in the café told me that my final goal, Riace Superiore; was located 7km up in the mountains, so I used some of the money to refuel before grabbing my bags and start walking uphill.
