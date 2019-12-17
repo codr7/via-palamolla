@@ -21,3 +21,7 @@ After a brief discussion between the husband and the manager of the villiage, wh
 
 There was no heating and the building was falling into pieces like the rest of the village, but compared to what I had just been through it was heaven. Outside the apartment I found a lemon tree and a orange tree, and proceeded to pick my first lemon and orange ever as an evening snack. Once I done eating; I put on enough clothes to keep warm for the night, went to bed and slept in peace for the first time in three days.
 
+As I woke up, the sun was shining in through the cracks in the wall around the windows. My body felt like it had been run over by a freight train, so I grabbed my phone and sent a message to tell the family that I was going to need a couple of days of rest before I could harvest any more olives.
+
+I spent most of the day chilling in the sun outside the apartment, and finally got bored enough to go for a short walk and start finding my way around Riace. On my way, I stumbled upon a tiny café/pizzeria with a nice atmosphere. The owner and what seemed like his family quickly got involved into making me a pizza with salami and olives that I paid for using some of the 10 Euros I got the day before after helping out with the harvest.
+
