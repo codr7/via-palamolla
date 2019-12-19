@@ -1,4 +1,10 @@
 ### 1. Via Palamolla
+
+> Life is like a bird.
+> One wing is truth, the other love.
+> Lose one and go in circles.
+> Lose both and drop like a rock.
+
 I'm writing these words in a notebook while sitting in a somewhat uncomfortable pose on top of a cold marble bench surrounded by swaying palm trees on the beach walk in Reggio Calabria. Trying my best to look like I belong here to not draw the attention of the Police car that passes by with regular intervals, as well as timing my toilet breaks down by the water to not let anyone find my bags unattended.
 
 It's three hours after midnight and the moon is still high in the sky, but I can feel the wind getting warmer and sense increasing activity from the awakening city behind me. I'm listening to the calm waves hitting the rocky beach in front of me, savouring the familiar scent of ocean and watching the glimmering lights on the opposite side of the bay; while finishing a bag of bread sticks and drinking cold water with chia- and sesame seeds that I was wise enough to bring along for the trip from my stainless steel cup; and occasionaly rolling a cigarette, more to break the monotony than because of nicotine cravings.
