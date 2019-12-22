@@ -1,6 +1,6 @@
 ### 4. Sant Egidio
 
-I arrived at Rome's Anagnina bus station around 6am on a 10h direct bus from Munich, Germany. My goal was to make my way to Sant Egidio, a shelter run by the Catholic church; to reload and wait for a friend in Germany to transfer donations from the Gofundme campaign I launched before leaving the country.
+I arrived at Rome's Anagnina bus station around 6am on a 11h direct bus from Munich, Germany. My goal was to make my way to Sant Egidio, a shelter run by the Catholic church; to reload and wait for a friend in Germany to transfer donations from the Gofundme campaign I launched before leaving the country.
 
 Having no idea where I was, and seeing no signs of civilization except for the local bus parked in the next slot, I followed the other passengers onto the bus and asked the driver if he was going to the city center. He nodded and gestured for me to take a seat. The trip went through endless sleepy suburbs at breakneck speed, while the bus was rattling and squeaking from years of daily abuse.
 
