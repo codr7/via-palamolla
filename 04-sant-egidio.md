@@ -1,0 +1,32 @@
+### 4. Sant Egidio
+
+I arrived at Rome's Anagnina bus station around 6am on a 10h direct bus from Munich, Germany. My goal was to make my way to Sant Egidio, a shelter run by the Catholic church; to reload and wait for a friend in Germany to transfer donations from the Gofundme campaign I launched before leaving the country.
+
+Having no idea where I was, and seeing no signs of civilization except for the local bus parked in the next slot, I followed the other passengers onto the bus and asked the driver if he was going to the city center. He nodded and gestured for me to take a seat.
+
+The trip went through endless sleepy suburbs at breakneck speed, while the bus was rattling and squeaking from years of daily abuse. Once we reached the end station in the middle of an industrial zone, I found myself standing in front of a metro station.
+
+I entered the station and was greeted by a man in uniform who didn't speak any English but let me through without a ticket to get rid of me. On the platform, I started scanning the morning rush hour crowd for someone willing to help with directions. An older lady and a young man pulled out their phones, managed to Google their way to an address and told me the name of a station about ten stops away on the current line.
+
+Once I exited the Metro, I was relieved to finally have arrived in what looked like the city center; staring straight at the ruins of a city wall. But I still had no idea in which direction or how far away my goal was. After poking around for a while, I was directed to a tram and told at which station to get off. 
+
+Just as the tram was about to depart, two men in uniform appeared in the door and started checking tickets. These were unfortunately of the pure bred fascist kind, and proceeded to enter every single piece of information they could find in my temporary passport into a handheld computer which then spit out a 2m strip of Italian legalese that I didn't understand and an amount that I had no intention of ever paying.
+
+I got off the tram in front of a café full of people enjoying a coffee and snack on their way to work. At this point I felt like I deserved a reload and went ahead and ordered a slice of pizza, an espresso and some water to refill my bottle. Outside the café I managed to find a young man on his way to work who spoke enough English to give me walking directions to my goal, which was now only about a kilometer away.
+
+The closer I got; the more churches, restaurants, tourists, souvernir shops and homeless people begging for money I could see. As I took a seat on the steps outside a church to drink water and get some rest, a camera carrying tourist approached and asked if he could take my picture. I have no idea what he was seeing, but he seemed very happy with his photo, said thank you and hurried along to the next frame.
+
+My goal was crammed in between churches, souvernir shops and restaurants on a tiny piazza. Outside the door, a man was busy putting up a new fancy sign. I knocked on the door, and a busy woman opened. I barely had time to open my mouth before she handed me a booklet in Italian containing addresses and phone numbers to various shelters and soup kitchens scattered across the city as well as information about which days they were open. She then quickly disappeared inside again and closed the door.
+
+I found a place in the sun down by the river and sat down for a few hours to consider my options. Rome felt too big and too busy to offer a safe space. While I could see myself making it for a night or two; any issues with the money transfer would mean I got stuck there without money, which would be a disaster.
+
+I had slightly less than 40 Euros left, which I figured would be enough to pay for a bus ticket to Reggio Calabria, some water and a bit of food to make the 8h trip. But the first problem was finding the bus station. I grabbed my bags and walked out into a nearby busy intersection to find out more. Luckily, a friendly Canadian couple overheard me speaking English and came to my rescue. They were going to the central train station by bus, which seemed good enough to me; so I tagged along on yet another death defying local bus trip without a ticket.
+
+Once at the train station, I learned that the bus station I was looking for was still several metro stops away. So I reluctantly sacrificed €1.50 for a metro ticket to hopefully get there before the last bus for the day departed. The bus ticket to Reggio Calabria cost €30, but unfortunately didn't leave until 02:30pm the following day. That didn't seem like a major issue until they closed the bus station at 22:00pm and I was left standing outside in the cold pouring rain with my bags.
+
+Looking around, I found a tunnel filled with immigrants sitting on their bags; seemingly suffering the same fate. As I entered the tunnel I recognized the smell of Hashish and the atmosphere suddenly got very tense and suspicious. So I walked straight up to the person currently holding the joint, reached out my hand and introduced myself.
+
+After chatting for a while and exchanging stories; my new friend reached into his pocket and offered me a piece of excellent Maroccan Hashish as a gift, which turned out to be just what I needed to make a night in the freezing cold tunnel without food bearable.
+
+The next day I used the few Euros I had left after buying the bus ticket to get a cappuccino, a croissant, a bottle of water and some warmth and comfort for breakfast. And then went over to the bus station waiting room and slept sitting in a chair until the bus arrived.
+
