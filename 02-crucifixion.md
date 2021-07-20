@@ -1,5 +1,9 @@
 ### 2. Crucifixion
 
+> Improvise, Adapt, Overcome.<br/>
+> Heart of fire, open eyes.<br/>
+> Nothing can stop us now.<br/>
+
 I spent most of the following day dragging my bags back and forth across town, looking for a Western Union office to make it possible for a friend in Germany to transfer donations from the Gofundme campaign I launched before leaving the country. Once I located an office, I was informed that withdrawing money using a temporary passport is illegal to prevent money laundering. It seems to me that if that was the real goal, the law would include a minimum amount to apply. The practical consequence is that once you're on a temporary passport without access to a bank account, you're on your own.
 
 Somewhat frustrated I sat down in a park to reload in the sun and consider my options. As I was sitting there pulling off layers of warm clothes, a homeless immigrant approached me and asked if I could spare something warm to wear; as I had plenty and he was freezing. My first reflex was to put up my shields, since I was still very much operating in fight- or flight mode. But then I remembered my friend from the hotel the night before; and pulled out a cozy pullover filled with goose down and said here, this will keep you warm. For the entire time I sat there; my new friend was sitting next to me beaming like the sun and trying to keep a conversation going using the few English words he knew.
@@ -16,4 +20,4 @@ My phone managed to pull me out of coma just before the bus arrived. As I tried 
 
 At some point I fell asleep with my head resting against the window, and was woken up by the man responsible for selling tickets. When he realized I didn't have any money, he started swearing like crazy in Italian while bouncing up and down. I fully expected to be thrown off with my bags in the rain any second; but once he had vented his frustration and the ladies managed to calm him down, he was back to his normal cheery self again. At the next stop, the lady next to me discretely reached down into her handbag and handed over a €5 note. I gently touched her arm and wispered thank you, and then she stood up and got off the bus.
 
-When we arrived in Riace Marina at a café down by the ocean on the opposite side of the mountains, the bus driver leapt out and helped me unload my bags as if the ticket drama never happened. The girl working in the café told me that my final goal, Riace Superiore; was located 7km up in the mountains, so I used some of the money to refuel before grabbing my bags and start walking uphill.
+When we arrived in Riace Marina at a café down by the ocean on the opposite side of the mountains, the bus driver leapt out and helped me unload my bags as if the ticket drama never happened. The girl working in the café told me that my final goal, Riace Superiore, was located 7km up into the steep mountains. I used some of the money to refuel, asked for a refill of my water bottle, took a deep breath and grabbed my bags. As I looked up an older Italian man was standing right in front of me with an admiring smile; very strong, he said, pointing at his biceps and my bags. He had no idea.
