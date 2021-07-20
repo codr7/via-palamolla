@@ -1,4 +1,4 @@
-### Ⓐnalogistics 01. Via Palamolla
+### 1. Via Palamolla
 
 > Life is like a bird.<br/>
 > One wing is truth, the other love.<br/>
