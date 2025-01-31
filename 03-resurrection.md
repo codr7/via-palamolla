@@ -18,7 +18,7 @@ After dinner and coffee, the entire family grabbed their gear and we went out in
 
 Once the sun went down, and all the olives had been carried back to the house; the couple drove me to The Global Village, an ant hill of ancient buildings stacked on top of each other, housing people from all over the world in the center of Riace. On our way there, we passed by a small store to get some bread, salami, cheese and water to make sure I had food for a couple of days.
 
-After a brief discussion between the husband and the manager of the village, whom he seemed to know well; the manager agreed to give me a place to sleep for a few days. Not really knowing what to expect, I was escorted down into the ant hill and finally arrived at a gate. Inside the gate was a set of stairs leading up to a house with a big, heavy wooden door; leading to a private two room/level apartment with a bed and shower, but not much else.
+After a brief discussion with the manager of the village, whom he seemed to know well; they agreed to give me a place to sleep for a few days. Not really knowing what to expect, I was escorted down into the ant hill and finally arrived at a gate. Inside the gate was a set of stairs leading up to a house with a big, heavy wooden door; leading to a private two room/level apartment with a bed and shower, but not much else.
 
 There was no heating and the building was falling into pieces like the rest of the village, but compared to what I had just been through it was like heaven. Outside the apartment I found a lemon and orange tree, and proceeded to pick my first lemon and orange ever for evening snack. I then put on enough clothes to keep warm for the night, went to bed and slept in peace for the first time in what seemed like forever.
 

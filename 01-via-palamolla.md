@@ -3,7 +3,7 @@
 > Life is like a bird.<br/>
 > One wing is truth, the other love.<br/>
 > Lose one and go in circles.<br/>
-> Lose both and drop like a rock.<br/>
+> Lose both and drop.<br/>
 
 I'm scribbling these words in a simple notebook, sitting in a somewhat uncomfortable pose on top of a cold marble bench surrounded by swaying palm trees on the beach walk in Reggio Calabria, Southern Italy. Trying my best to look like I belong here to not draw the attention of the police car that passes by with regular intervals, as well as timing my toilet breaks down by the water to not let anyone find my bags unattended.
 
